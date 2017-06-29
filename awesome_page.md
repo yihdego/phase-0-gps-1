@@ -1,4 +1,4 @@
-*Name : Ashish and Amanuel*
+*Name : Ashish and Amanuel.*
 
 **Guided Pairing Session 1.1**
 
